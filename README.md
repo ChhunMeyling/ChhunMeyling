@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is Chhun Muying </h2>
+<h2 align="left">Hi 👋! My name is Chhun Muyling </h2>
 
 ###
 
