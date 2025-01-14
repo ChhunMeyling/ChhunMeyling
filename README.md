@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.gifer.com/VdgG.gif"  />
+<img align="right" height="150" src="https://static.wikia.nocookie.net/7dbae891-d8f4-477d-bd65-549d14642393/scale-to-width/755"  />
 
 ###
 
